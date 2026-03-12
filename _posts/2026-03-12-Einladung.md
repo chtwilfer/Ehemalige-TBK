@@ -16,3 +16,7 @@ Kommt bei Wurst und Bier zusammen und sprecht über "alte Zeiten".
 
 
 Wir freuen uns auf Euch.
+
+
+
+HIER FLYER als BILD einfügen
