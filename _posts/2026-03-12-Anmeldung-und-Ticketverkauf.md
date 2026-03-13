@@ -8,10 +8,10 @@ So funktioniert’s:
 
 - Klicke auf den untenstehenden Button, um direkt zur Ticketbuchung zu gelangen.
 - Wähle dein Ticket aus und trage deine Daten ein.
-- Nach Abschluss der Buchung erhältst du eine Bestätigung per E-Mail.
+- Nach Abschluss der Buchung erhältst du eine Bestätigung mit QR-Code. Diesen benötigst Du am Veranstaltunstag zum Einlass.
 
-Die Anmeldung ist verbindlich. Bitte beachte, dass die Teilnehmerzahl begrenzt ist – also am besten gleich anmelden!
+Die Anmeldung ist verbindlich.
 
-👉 Zur Anmeldung und Ticketbuchung (Link wird noch eingefügt)
+👉 Zur Anmeldung und Ticketbuchung (Link wird noch eingefügt - Anmeldung ab ca. April 26 möglich)
 
 Wir freuen uns darauf, dich wiederzusehen und gemeinsam eine großartige Zeit zu verbringen.
