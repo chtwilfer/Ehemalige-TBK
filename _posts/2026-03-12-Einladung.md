@@ -11,7 +11,7 @@ Wann: Samstag, 17. Oktober 2026
 
 Wo: Mühlenhof Rheine, Surenburgstrasse 77, 48429 Rheine
 
-Einlass; ab 16:00 Uhr, Beginn: 17:00 Uhr
+Einlass: ab 16:00 Uhr, Beginn: ab ca. 17:00 Uhr
 ___________
 
 
