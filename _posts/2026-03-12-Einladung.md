@@ -6,11 +6,11 @@ wir laden euch herzlich zu unserem diesjährigen Ehemaligentreffen ein!
 Es ist wieder Zeit, alte Freundschaften aufzufrischen, gemeinsam zu lachen, Erinnerungen zu teilen und neuen Geschichten Platz zu geben.
 
 
-| Wann | Samstag | 17. Oktober 2026 |
+Wann: Samstag, 17. Oktober 2026
 
-| Wo | Mühlenhof Rheine | Surenburgstrasse 77, 48429 Rheine |
+Wo: Mühlenhof Rheine, Surenburgstrasse 77, 48429 Rheine
 
-| Einlass | ab 16:00 Uhr | Beginn: 17:00 Uhr |
+Einlass; ab 16:00 Uhr, Beginn: 17:00 Uhr
 
 
 
